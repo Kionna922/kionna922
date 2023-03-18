@@ -1,1 +1,1 @@
-### Hi there my nmae is Amber
+### Hi there my name is Amber
